@@ -1,0 +1,1 @@
+# rashi-novini-strelcha-panagurishte
